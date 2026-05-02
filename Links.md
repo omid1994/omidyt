@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-02 19:27 IR
+- 🎬 [[MPD직캠] 케플러 김채현 직캠 4K 'KILLA (Face the other me)' (Kep1er CHAEHYUN FanCam) ｜ @MCOUNTDOWN_2026.4.2.mp4](https://github.com/omid1994/omidyt/raw/main/dl/%5BMPD%EC%A7%81%EC%BA%A0%5D%20%EC%BC%80%ED%94%8C%EB%9F%AC%20%EA%B9%80%EC%B1%84%ED%98%84%20%EC%A7%81%EC%BA%A0%204K%20%27KILLA%20%28Face%20the%20other%20me%29%27%20%28Kep1er%20CHAEHYUN%20FanCam%29%20%EF%BD%9C%20%40MCOUNTDOWN_2026.4.2.mp4) `7.6MB`
+
+---
+
+
 ### 📅 2026-05-02 19:11 IR
 - 🎬 [[안방1열 직캠4K] 케플러 김채현 'Galileo' (Kep1er CHAEHYUN FanCam) @SBS Inkigayo 231015.mp4](https://github.com/omid1994/omidyt/raw/main/dl/%5B%EC%95%88%EB%B0%A91%EC%97%B4%20%EC%A7%81%EC%BA%A04K%5D%20%EC%BC%80%ED%94%8C%EB%9F%AC%20%EA%B9%80%EC%B1%84%ED%98%84%20%27Galileo%27%20%28Kep1er%20CHAEHYUN%20FanCam%29%20%40SBS%20Inkigayo%20231015.mp4) `18.6MB`
 
